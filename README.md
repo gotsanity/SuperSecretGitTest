@@ -1,3 +1,3 @@
-Todd was here!!! This is awsome!
+Omega Virus is an amazing game!!!
 
 Hi world
